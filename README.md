@@ -6,7 +6,7 @@ NIM : 312210310
 
 Kelas : TI.22.A.3
 
-YouTube : [click here]()
+YouTube : [click here](https://youtu.be/v6Ij5ECjrlU)
 
 # SOAL
 
